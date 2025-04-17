@@ -58,7 +58,7 @@ Currently sharpening my skills in data storytelling, feature engineering, and bu
  📫 **Let's Connect!**
 
 - 💼 [LinkedIn](https:// www.linkedin.com/in/fatima--saleem  ) 
-- 📧 Email: fatimasaleem6868@example.com 
+- 📧 Email: fatimasaleem6868@gmail.com 
 - 🌐 Portfolio (Coming Soon)
 
 ---
